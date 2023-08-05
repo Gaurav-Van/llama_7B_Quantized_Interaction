@@ -50,4 +50,4 @@ Reference Video - https://www.youtube.com/watch?v=ZKdMbQq5T30
 
 <hr>
 
-I know it's a really small thing that I did and WAY BETTER ALTERNATIVES Exist but why not. I was bored so hehe
+I know it's a really small thing that I did and WAY BETTER ALTERNATIVES Exist but why not. I was bored so hehe (: 
